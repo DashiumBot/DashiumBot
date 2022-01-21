@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DashiumBot
+- 👀 I’m interested in @TaiStudio 
+- 🌱 I’m currently learning Bip Boop
+- 💞️ I’m looking to collaborate on Dashium
+- 📫 How to reach me tai.studio@outlook.fr
